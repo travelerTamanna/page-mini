@@ -1,1 +1,1 @@
-# page-mini
+https://travelertamanna.github.io/page-mini/
